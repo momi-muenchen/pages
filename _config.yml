@@ -1,0 +1,7 @@
+remote_theme: pages-themes/minimal@v0.2.0
+plugins:
+- jekyll-remote-theme
+title: Momi e.V. München
+logo: momi-montessori-mittagsbetreuung-400x250.jpg
+description:  Mittagsbetreuung an der Montessorischule Großhadern
+is_project_page: false
