@@ -17,11 +17,11 @@ Niklas Wick<br>
 Belinda Maroschik<br>
 Denise Hofer-Schatz<br>
 
-**Kontakt:** vorstand@momi-muenchen.de
+**Kontakt:** vorstand AT momi-muenchen.de
 
 ## Verantwortlich für den Inhalt lt. § 6 TDG
 
-admin@momi-muenchen.de
+admin AT momi-muenchen.de
 
 ## Datenschutz
 
