@@ -24,10 +24,11 @@ Anmelden könnt ihr euer Kind, indem ihr [dieses Formular](Anmeldung_Formular_Mo
     * Momi Grün (4. Klasse): Dienstag
 * Bei Geschwisterkindern bitte ein Formular pro Kind absenden.
 * Bei "Gruppe" einfach "Momi" angeben, das ist für uns nicht relevant, da alle Kinder zusammen essen. 
-* Nach der Anmeldung bekommt ihr eine Mail mit Zugangsdaten vom Caterer. Wenn dies nicht passiert oder ihr sonstige Probleme bei der Anmeldung habt, wendet euch bitte an [essen@momi-muenchen.de](essen@momi-muenchen.de).
+* Nach der Anmeldung bekommt ihr eine Mail mit Zugangsdaten vom Caterer. Wenn dies nicht passiert oder ihr sonstige Probleme bei der Anmeldung habt, wendet euch bitte per Mail an essen AT momi-muenchen.de.
 
 ## Weitere Informationen
 
 * Schulferien und allgemeine Schließtage kommuniziert das Orga-Team dem Caterer. Im Bestellsystem werden dann Schließtage eingetragen, ihr müsst also nicht daran denken, das Essen hier abzubestellen.
 * Bei Ausflügen liefert der Caterer uns statt des warmen Mittagessens, das im Speiseplan steht, Lunchpakete an. Auch das wird vom Orga-Team geregelt. Ihr müsst nur tätig werden und ein Extra-Essen bestellen, wenn euer Kind an diesem Tag normalerweise nicht die Momi besucht, aber am Ausflug teilnimmt und gerne ein Lunchpaket möchte.
-* **Der Caterer und auch wir vom Orga-Team freuen uns immer über Feedback zum Mittagessen!** Bei jeglichem Lob/Kritik/Anregungen/Fragen wendet euch bitte an die Mittagessen-Orga im Momi-Team: [essen@momi-muenchen.de](essen@momi-muenchen.de).
+* Wollt ihr ein Essen ab- oder umbestellen, so ist das bis spätestens 12:00 des vorigen Werktags möglich (Essen für Montag muss also spätestens bis Freitag, 12:00 abbestellt werden). Allerdings ist es frühestens möglich, nachdem die automatisierte E-Mail mit dem Speiseplan verschickt wurde, dies passiert in der Regel zwischen Donnerstag und Freitag für die folgende Woche.
+* **Der Caterer und auch wir vom Orga-Team freuen uns immer über Feedback zum Mittagessen!** Bei jeglichem Lob/Kritik/Anregungen/Fragen wendet euch bitte an die Mittagessen-Orga im Momi-Team: essen AT momi-muenchen.de.
