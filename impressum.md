@@ -21,7 +21,7 @@ Denise Hofer-Schatz<br>
 
 ## Verantwortlich für den Inhalt lt. § 6 TDG
 
-admin AT momi-muenchen.de
+webmaster AT momi-muenchen.de
 
 ## Datenschutz
 
