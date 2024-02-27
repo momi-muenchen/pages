@@ -10,7 +10,7 @@ permalink: /mittagessen
 
 Bei uns in der Momi essen alle vier Gruppen gemeinsam zu Mittag. Wir beziehen unser Essen vom Bio-Caterer [Organic Garden](https://www.organicgarden.de/schools). 
 Anders als die Schule bestellen wir nicht automatisch ein Mittagessen für eure Kinder. **Damit eure Kinder in der Momi mitessen können, müsst ihr sie
-selbst beim Caterer anmelden**. Ihr könnt dort ein **"Abo"** für die regelmäßigen Momi-Tage abschließen, dieses Abo könnt ihr jederzeit anpassen. Ihr könnt auch kurzfristig (zum Beispiel bei Krankheit) einzelne Essen abbestellen. Die Kosten fürs Mittagessen rechnet ihr direkt mit dem Caterer ab. Aktuell kostet ein Mittagessen 4,50€ (Stand Juli 2023). 
+selbst beim Caterer anmelden**. Ihr könnt dort ein **"Abo"** für die regelmäßigen Momi-Tage abschließen, dieses Abo könnt ihr jederzeit anpassen. Ihr könnt auch kurzfristig (zum Beispiel bei Krankheit) einzelne Essen abbestellen. Die Kosten fürs Mittagessen rechnet ihr direkt mit dem Caterer ab. Aktuell kostet ein Mittagessen 4,60€ (Stand Februar 2024). 
 
 Alle Informationen zur Anmeldung bekommt ihr beim Momi-Start von uns zugeschickt. Auf dieser Seite sind sie noch einmal zusammengefasst. 
 
