@@ -13,8 +13,8 @@ Heiglhofstr. 63<br>
 81377 München<br>
 
 ### Vertretungsberechtigter Vorstand
-Niklas Wick<br>
-Belinda Maroschik<br>
+Bernhard Meindorfer<br>
+Thomas Kronberger<br>
 Denise Hofer-Schatz<br>
 
 **Kontakt:** vorstand AT momi-muenchen.de
