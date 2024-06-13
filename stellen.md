@@ -1,9 +1,9 @@
 # Dringend! Wir suchen zum 1.9.24 Verstärkung für unser Team
 
 
-**Stundenzahl pro Woche:** 12-16 Stunden
-**Arbeitszeiten:** 3-4 Tage/Woche, zwischen 11 und 16 Uhr
-**Stelle frei ab:** 1. September 2024
+- **Stundenzahl pro Woche:** 12-16 Stunden
+- **Arbeitszeiten:** 3-4 Tage/Woche, zwischen 11 und 16 Uhr
+- **Stelle frei ab:** 1. September 2024
 
 
 
