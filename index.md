@@ -7,7 +7,7 @@ layout: default
 <!-- * TOC
 {:toc} -->
 
->**Dringend! [Wir suchen Verstärkung für unser Team](/stellen)**
+``Dringend!`` [Wir suchen Verstärkung für unser Team](/stellen)
 
 ## Allgemeines
 
