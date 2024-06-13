@@ -1,12 +1,11 @@
-# Wir suchen dringend zum 1.9.24 Verstärkung für unser Team
+# Dringend! Wir suchen zum 1.9.24 Verstärkung für unser Team
+
 
 **Stundenzahl pro Woche:** 12-16 Stunden
-
 **Arbeitszeiten:** 3-4 Tage/Woche, zwischen 11 und 16 Uhr
-
 **Stelle frei ab:** 1. September 2024
 
-##
+
 
 Wir sind eine Mittagsbetreuung für Grundschulkinder an der Montessorischule der Aktion Sonnenschein in Großhadern und suchen ab 1.9.24 Verstärkung für unser Team.
 Dieses besteht aktuell aus 10 Betreuerinnen. Sie arbeiten in 2er oder 3er Teams mit insgesamt 4 Gruppen in den Räumen des jeweiligen Bidos.
