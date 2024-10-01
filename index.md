@@ -73,3 +73,6 @@ Eltern angewiesen. Aktuell wirken sechs Eltern im Momi-Orgateam mit. Alle Eltern
     * MoMi e.V. Mittagsbetreuung<br>
 Heiglhofstr. 63<br>
 81377 München
+
+## Satzung
+Unsere Satzung findet ihr [hier](Förderverein-MoMi_Satzung_Stand_0921.pdf).
