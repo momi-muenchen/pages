@@ -75,4 +75,4 @@ Heiglhofstr. 63<br>
 81377 München
 
 ## Satzung
-Unsere Satzung findet ihr [hier](Förderverein-MoMi_Satzung_Stand_0921.pdf).
+Unsere Satzung findet ihr [hier](MoMi_Satzung.pdf).
