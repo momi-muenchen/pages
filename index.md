@@ -2,7 +2,7 @@
 layout: default
 ---
 
-# Momi e.V. Mittagsbetreuung an der Montessorischule Großhadern
+# Förderverein für die MoMi Heiglhofstraße München e.V.
 
 <!-- * TOC
 {:toc} -->
@@ -56,8 +56,7 @@ Mittelpunkt unserer pädagogischen Arbeit:
 ## Elterninitiative – was heißt das?
 
   Die MoMi wird vom eingetragenen gemeinnützigen
-„Förderverein für die Mittagsbetreuung an der
-Montessorischule e. V.“ organisiert. Die Eltern, deren
+„Förderverein für die MoMi Heiglhofstraße München e.V.“ organisiert. Die Eltern, deren
 Kinder in der MoMi betreut werden, sind Vereinsmitglieder
 und kümmern sich um die Belange des Vereins und der
 MoMi. Die MoMi ist deshalb auf das Engagement von
