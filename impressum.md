@@ -8,7 +8,7 @@ permalink: /impressum
 
 ## Impressum
 
-MoMi e.V. Mittagsbetreuung<br>
+Förderverein für die MoMi Heiglhofstraße München e.V.
 Heiglhofstr. 63<br>
 81377 München<br>
 
