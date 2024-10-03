@@ -8,7 +8,7 @@ permalink: /impressum
 
 ## Impressum
 
-Förderverein für die MoMi Heiglhofstraße München e.V.
+Förderverein für die MoMi Heiglhofstraße München e.V.<br>
 Heiglhofstr. 63<br>
 81377 München<br>
 
