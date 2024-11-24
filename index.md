@@ -64,7 +64,7 @@ Eltern angewiesen. Aktuell wirken sechs Eltern im Momi-Orgateam mit. Alle Eltern
 
 ## Kosten und Organisatorisches
 
-* **Betreuungsbeitrag** : 130,00 Euro im Monat (Stand im Juli 2023)
+* **Betreuungsbeitrag** : 143,00 Euro im Monat (Stand im September 2024)
 * Die Kosten können sich ändern, bitte aktuelle Kosten bei Bedarf anfragen (siehe E-Mail-Adressen unten).
 * **Allgemeine Fragen oder Anfragen zur MoMi**:
     * info AT momi-muenchen.de
