@@ -48,8 +48,7 @@ Mittelpunkt unserer pädagogischen Arbeit:
 * Ausreichend Platz zum Spielen, Bewegen und Ausruhen
 * Verschiedene Angebote (beispielsweise Bastelangebote) durch
     die Betreuerinnen
-* Feste in den MoMi-Gruppen: Halloween, Weihnachten
-* Fasching und Geburtstage der Kinder
+* Feste in den MoMi-Gruppen: Halloween, Weihnachten, Fasching und Geburtstage der Kinder
 * Ausflüge in die Umgebung und in den Westpark
 * Extra-Angebote, zum Beispiel Plätzchen backen
 
