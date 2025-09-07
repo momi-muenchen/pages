@@ -17,11 +17,11 @@ Alle Informationen zur Anmeldung bekommt ihr beim Momi-Start von uns zugeschickt
 ## An- und Abmeldung
 
 Anmelden könnt ihr euer Kind, indem ihr [dieses Formular](Anmeldung_Formular_Momi Heiglhofstr.pdf) ausfüllt und es direkt zum Caterer an eine der angegebenen Adressen schickt. Bitte beachtet dabei:
-* **Denkt daran, KEIN Abo für den langen Bido-Tag eures Kindes einzurichten**! Am langen Bido-Tag essen die Kinder in der Schule. Die langen Bido-Tage sind im Schuljahr 2024/2025:
-    * Momi Grün (1. Klasse): Dienstag
-    * Momi Blau (2. Klasse): Mittwoch
-    * Momi Rot (3. Klasse): Montag
-    * Momi Gelb (4. Klasse): Mittwoch
+* **Denkt daran, KEIN Abo für den langen Bido-Tag eures Kindes einzurichten**! Am langen Bido-Tag essen die Kinder in der Schule. Die langen Bido-Tage sind im Schuljahr 2025/2026:
+    * Momi Gelb (1. Klasse): Mittwoch
+    * Momi Grün (2. Klasse): Dienstag
+    * Momi Blau (3. Klasse): Mittwoch
+    * Momi Rot (4. Klasse): Montag
     
 * Bei Geschwisterkindern bitte ein Formular pro Kind absenden.
 * Bei "Gruppe" einfach "Momi" angeben, das ist für uns nicht relevant, da alle Kinder zusammen essen. 
