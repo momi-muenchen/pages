@@ -14,7 +14,7 @@ Heiglhofstr. 63<br>
 
 ### Vertretungsberechtigter Vorstand
 Bernhard Meindorfer<br>
-Thomas Kronberger<br>
+Thomas Jones<br>
 Denise Hofer-Schatz<br>
 
 **Kontakt:** vorstand AT momi-muenchen.de
