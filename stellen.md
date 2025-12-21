@@ -1,18 +1,25 @@
-# Wir suchen Verstärkung für unser Team
+# Verstärkung für unsere Mittagsbetreuung gesucht (m/w/d)
 
-Wir sind eine Mittagsbetreuung für Grundschulkinder an der Montessorischule der Aktion Sonnenschein in Großhadern und suchen ab sofort Verstärkung für unser Team.
+Die MoMi – Mittagsbetreuung an der Montessorischule der Aktion Sonnenschein in
+München-Großhadern sucht ab sofort engagierte Unterstützung.
 
-Dieses besteht aktuell aus 10 Betreuerinnen. Sie arbeiten in 2er oder 3er Teams mit insgesamt 4 Gruppen in den Räumen des jeweiligen Bidos.
+In unserer Mittagsbetreuung begleiten wir Grundschulkinder durch ihren Nachmittag – in einer verlässlichen, wertschätzenden Atmosphäre mit klaren Strukturen und Raum für Beziehung und gemeinsames Tun.
 
-Die Stelle wird ab sofort besetzt.
+Du arbeitest in einem Team aus aktuell 13 Betreuerinnen, in kleinen 2er- oder 3er-Teams mit insgesamt vier Gruppen. Wichtig sind uns Verbindlichkeit, Übersicht und die Bereitschaft, Abläufe gemeinsam zu tragen und weiterzuentwickeln.
 
-- **2-3 Tage die Woche**
-- **8-12 Stunden/Woche**
-- **Startgehalt voraussichtlich 16,50/Std**
-- **Mit den Kindern essen, spielen und basteln wir, betreuen die Hausaufgabenzeit, feiern Feste und machen Ausflüge.**
+Neben der Arbeit mit den Kindern wünschen wir uns Freude daran, Verantwortung zu übernehmen und organisatorisch mitzudenken, z. B. bei Absprachen, Planung und der Struktur des Alltags.
 
-Was wir uns wünschen: Erfahrung und Freude an der Betreuung von Kindern, Lust im Team zu arbeiten, Bereitschaft und bestenfalls Spaß daran auch organisatorische Aufgaben zu übernehmen.
+## Das erwartet dich:
+- 12–16 Stunden pro Woche
+- 3–4 feste Arbeitstage
+- abwechslungsreiche Nachmittage mit Gestaltungsspielraum
+- Mitwirkung an Abläufen und Ideen
+- ein wertschätzendes Umfeld innerhalb einer besonderen Schulgemeinschaft
 
-Bei Interesse gerne eine Mail mit Bewerbung und Lebenslauf an [personal@momi-muenchen.de](mailto:personal@momi-muenchen.de).
+## Das bringst du mit:
+- Freude an der Arbeit mit Grundschulkindern, idealerweise mit Erfahrung
+- Zuverlässigkeit, Teamfähigkeit und klare Kommunikation
+- Interesse an Organisation und Struktur
+- eine zugewandte Haltung gegenüber Kindern, Eltern und Kolleg:innen
 
-Wir freuen uns auf Eure Bewerbungen!
+Wir freuen uns über deine Bewerbung mit Lebenslauf per E-Mail an [personal@momi-muenchen.de](mailto:personal@momi-muenchen.de).
